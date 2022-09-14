@@ -9,7 +9,5 @@
 
 电聊天分享群：https://t.me/ENBKK
 
-永久订阅地址：
-
 永久免费订阅
 频道： https://t.me/ENBKG
